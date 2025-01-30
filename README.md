@@ -1,0 +1,2 @@
+# FSTHUNG.ru
+FSTHUNG
